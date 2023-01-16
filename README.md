@@ -1,4 +1,4 @@
-### Hi there 👋
+
 <h1 align="center">Hey there 👋, I'm Eugene</h1>
 <h3 align="center">I'm a Computer Science student currently studying at the National University of Singapore</h3>
 
