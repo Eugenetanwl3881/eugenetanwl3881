@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **eugene.tan.wl@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1KMvI57P3RLxIgh-1ZibuVGotGgBmb6rI/view](https://drive.google.com/file/d/1KMvI57P3RLxIgh-1ZibuVGotGgBmb6rI/view)
+- 📄 Know more about my experiences [here](https://drive.google.com/file/d/1KMvI57P3RLxIgh-1ZibuVGotGgBmb6rI/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
