@@ -4,7 +4,7 @@
 
 - 🌱 I’m a curious learner and experimenter by nature
 
-- 👨‍💻 All of my projects are available at [https://github.com/Eugenetanwl3881](https://github.com/Eugenetanwl3881)
+- 👨‍💻 All of my projects are available on my [Github](https://github.com/Eugenetanwl3881?tab=repositories)
 
 - 📫 How to reach me **eugene.tan.wl@gmail.com**
 
